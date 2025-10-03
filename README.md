@@ -14,7 +14,10 @@
 
 
 
-$${\color{blue}⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀he  /  him}$$  /  himself⠀⠀,⠀⠀pansexual
+$${\color{blue}⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀he  /  him}$$  /  himself⠀⠀,⠀⠀pansexual
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀17yrs old⠀⠀,⠀⠀caran  /  max
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀17yrs old⠀⠀,⠀⠀caran  /  max
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀If my presence bothers you, you can hide me, it doesn't bother me.
 <img width="2048" height="726" alt="tumblr_77b9a934eba88bc16e339be4195bbb3d_74ad733b_20428__fliter--x-rays__channel--blue__mode--darken" src="https://github.com/user-attachments/assets/abe33bf9-484e-469e-8c4a-fb1cd7f65739" />
